@@ -7,3 +7,4 @@ Ethos >>; THEY/HE
 
 ![image](https://github.com/user-attachments/assets/5e48a0f5-007b-4c39-b219-0902ad30c6df)
 
+![;](https://github.com/user-attachments/assets/fb9bdfa8-ff44-4452-8342-3c90a24bc493)
