@@ -7,4 +7,4 @@ Ethos >>; THEY/HE
 
 ![image](https://github.com/user-attachments/assets/5e48a0f5-007b-4c39-b219-0902ad30c6df)
 
-![;](https://github.com/user-attachments/assets/fb9bdfa8-ff44-4452-8342-3c90a24bc493)
+<img src="https://64.media.tumblr.com/68bb9e71ec030bfeb579002c6761aa36/e4f8c035f1add387-c1/s100x200/4e71c3046aa1c1762b708bd37a59d32adce5bb6c.gifv"/>
