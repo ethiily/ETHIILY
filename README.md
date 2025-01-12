@@ -2,7 +2,9 @@
 
 <img src="https://i.pinimg.com/originals/8e/45/f5/8e45f5693e994c1616d74a1ef026cb8d.gif" align="left"/>
 <p align="center">
-Ethos >>; THEY/HE
+Ethos >>; THEY/HE</p>
+
+<p align="center">
 $${\color{red}19-FREELANCER-HOBBYIST.}$$
 ${{\color{Goldenrod}\{\textsf{  "I PLEAD IN VAIN, THESE BLEEDING HANDS MIGHT REACH FOR YOU." \}}}}\$ </p>
 
