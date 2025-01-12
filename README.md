@@ -7,6 +7,7 @@ Ethos >>; THEY/HE</p>
 $${\color{red}19-FREELANCER-HOBBYIST.}$$
 
 <br clear="left"/>
+
 ${{\color{Goldenrod}\Huge{\textsf{ "I PLEAD IN VAIN, THESE BLEEDING HANDS MIGHT REACH FOR YOU." \}}}}\$
 
 <img src="https://64.media.tumblr.com/dce9006085108da9b3077073031b4253/61fcf01ec6f55cb7-6c/s1280x1920/37f032a3d4804a8fee5a369e4c44d9e899d96357.pnj"/>
