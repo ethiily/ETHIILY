@@ -2,6 +2,8 @@
 <p align="center">
 Ethos >>; THEY/HE</p>
 
+$${\color{red}test}$$
+
 <br clear="left"/>
 
 
