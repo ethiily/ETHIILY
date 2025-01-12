@@ -3,7 +3,7 @@
 Ethos >>; THEY/HE</p>
 19 YEAR 
 
-![](https://komarev.com/ghpvc/?username=Ethiily)
+![](https://komarev.com/ghpvc/?username=Ethiily&color=red)
 <br clear="left"/>
 
 BLINKIES>
