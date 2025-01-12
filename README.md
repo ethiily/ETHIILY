@@ -3,6 +3,7 @@
 <img src="https://i.pinimg.com/originals/8e/45/f5/8e45f5693e994c1616d74a1ef026cb8d.gif" align="left"/>
 <p align="center">
 Ethos >>; THEY/HE
+<p align="center">
 
 $${\color{Goldenrod}19-FREELANCER-HOBBYIST.}$$ <br/>
 [★strawpage](https://ethiily.straw.page) <br/>
