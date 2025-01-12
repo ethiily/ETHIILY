@@ -4,7 +4,7 @@
 <p align="center">
 Ethos >>; THEY/HE</p>
 
-$${\color{red}19-FREELANCER-HOBBYIST.}$$
+$${\color{Goldenrod}19-FREELANCER-HOBBYIST.}$$
 
 <br clear="left"/>
  <br />
