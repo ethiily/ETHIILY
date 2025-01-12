@@ -1,5 +1,4 @@
 <img src="https://i.pinimg.com/originals/8e/45/f5/8e45f5693e994c1616d74a1ef026cb8d.gif" align="left"/>
-<img src="https://64.media.tumblr.com/b841e37168da7eb9c2097558d3741676/e175759dc028fc88-89/s1280x1920/aff9b38b933b88ea4402ed413f5e736af9a94c90.pnj" width="200px"/>
 <p align="center">
 - Ethos >>; THEY/HE -</p>
 
