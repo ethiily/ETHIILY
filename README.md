@@ -9,6 +9,8 @@ $${\color{red}19-FREELANCER-HOBBYIST.}$$
 <br clear="left"/>
  <br />
 
+<img src="https://64.media.tumblr.com/f0140cc4cd69c0baf8eece3f0e80059c/f2ffc9faf35a9088-e7/s2048x3072/75d702564677e9cca28ba8d51e11a560bed0be21.pnj"/>
+
 ${{\color{Goldenrod}\Huge{\textsf{ "I PLEAD IN VAIN, THESE BLEEDING HANDS MIGHT REACH FOR YOU." \}}}}\$
 
 <img src="https://file.garden/ZtQT07PCZ1cAh83z/eadsad.jpg"/>
