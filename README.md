@@ -3,8 +3,7 @@
 Ethos >>; THEY/HE</p>
 
 $${\color{red}19-FREELANCER-HOBBYIST.}$$
-
-<img src="https://64.media.tumblr.com/367072fe023e99abed45a4ced4de4d15/3b2533d81ef4b71e-92/s1280x1920/16b4b59365771f717dcf457fa2da127fb99fa1a1.gifv"/>
+$${\color{yellow}"I PLEAD IN VAIN, THESE BLEEDING HANDS MIGHT REACH FOR YOU!"}$$
 
 <br clear="left"/>
 
