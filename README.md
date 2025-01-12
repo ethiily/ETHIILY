@@ -5,7 +5,6 @@
 Ethos >>; THEY/HE</p>
 
 $${\color{red}19-FREELANCER-HOBBYIST.}$$
-#7fffff00[test]
 
 <br clear="left"/>
 
