@@ -7,6 +7,7 @@ Ethos >>; THEY/HE
 $${\color{Goldenrod}19-FREELANCER-HOBBYIST.}$$
 
 <p align="center">
+
 [★strawpage](https://ethiily.straw.page) <br/>
 [☆twitter](https://x.com/ethiily) <br/>
 
