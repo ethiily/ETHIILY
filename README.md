@@ -5,7 +5,7 @@
 <br clear="left"/>
 
 
-<img src="https://64.media.tumblr.com/5921d8189a54289b7131c6016ecd8d2a/ee5dfec8ed6f98fc-1d/s500x750/91b82029bceabf239b4b1e6eaef419ee217ecc06.gifv"/>
+<img src="https://64.media.tumblr.com/dce9006085108da9b3077073031b4253/61fcf01ec6f55cb7-6c/s1280x1920/37f032a3d4804a8fee5a369e4c44d9e899d96357.pnj"/>
 
 ![](https://komarev.com/ghpvc/?username=Ethiily&color=yellow&style=for-the-badge)
 <br clear="left"/>
