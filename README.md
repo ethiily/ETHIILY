@@ -2,7 +2,7 @@
 <p align="center">
 Ethos >>; THEY/HE</p>
 
-$${\color{red}test}$$
+$${\color{red}ADULT, FREELANCER, HOBBYIST.}$$
 
 <br clear="left"/>
 
