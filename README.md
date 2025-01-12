@@ -1,3 +1,5 @@
+<img src="https://64.media.tumblr.com/bc1387cc1c52cf97d2bbb8de1e961120/49833ea7a3e178f3-fa/s1280x1920/bf887dbeabf6bde4216973a3456900c34dd5a543.gifv"/>
+
 <img src="https://i.pinimg.com/originals/8e/45/f5/8e45f5693e994c1616d74a1ef026cb8d.gif" align="left"/>
 <p align="center">
 Ethos >>; THEY/HE</p>
