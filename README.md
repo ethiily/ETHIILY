@@ -1,7 +1,9 @@
 <img src="https://i.pinimg.com/originals/8e/45/f5/8e45f5693e994c1616d74a1ef026cb8d.gif" align="left"/>
 <p align="center">
 Ethos >>; THEY/HE</p>
+19 YEAR 
 
+![](https://komarev.com/ghpvc/?username=Ethiily)
 <br clear="left"/>
 
 BLINKIES>
