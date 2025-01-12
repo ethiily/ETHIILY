@@ -5,7 +5,6 @@
 Ethos >>; THEY/HE</p>
 
 $${\color{red}19-FREELANCER-HOBBYIST.}$$
-<code style="color:gold">test</code>
 
 <br clear="left"/>
 
