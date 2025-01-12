@@ -1,4 +1,4 @@
-<p align="center">
+<div style="text-align:center">
 
 ## WIP.
 
@@ -14,4 +14,4 @@ BLINKIES>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6z68c5h5e1swo9dld5kmka3b3&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=a00d0d)](https://github.com/kittinan/spotify-github-profile)
 
-</p>
+</div>
