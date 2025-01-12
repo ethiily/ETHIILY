@@ -9,7 +9,7 @@ $${\color{Goldenrod}19-FREELANCER-HOBBYIST.}$$
 <br clear="left"/>
  <br />
 
-<img src="https://64.media.tumblr.com/4be039e4cc3438e5e74a918fcb154b03/3451ae8811483f5a-ff/s1280x1920/a3dbaa617e0337edbb630bbcc4ad1b438d03f7fd.gifv"/>
+<img src="https://64.media.tumblr.com/807f06a7a110957a323ca70cde23cc2f/61fcf01ec6f55cb7-18/s1280x1920/2bf62db9d799bb41fc5eeb9ea8744e3dcaf3c2a4.pnj"/>
 
 ${{\color{Goldenrod}\Huge{\textsf{ "I PLEAD IN VAIN, THESE BLEEDING HANDS MIGHT REACH FOR YOU." \}}}}\$
 
