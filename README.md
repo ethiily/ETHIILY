@@ -2,7 +2,7 @@
 ## WIP.
 
 <p align="center">
-Ethos >>; THEY/HE</p>
+\033[31mEthos >>; THEY/HE\033[0m</p>
 
  ![image](https://github.com/user-attachments/assets/9f51e8f3-19d1-48d1-b337-885ba0f29b3c) ; ![image](https://github.com/user-attachments/assets/6dcb7d35-057b-4d13-8696-a3fb0b6f840c) ; 
 
