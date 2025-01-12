@@ -4,8 +4,8 @@
 <p align="center">
 Ethos >>; THEY/HE</p>
 
-$${\color{Goldenrod}19-FREELANCER-HOBBYIST.}$$ <br/>
-
+$${\color{Goldenrod}19-FREELANCER-HOBBYIST.}$$
+<br/>
 [★strawpage](https://ethiily.straw.page) <br/>
 [☆twitter](https://x.com/ethiily) <br/>
 
