@@ -4,7 +4,7 @@
 <p align="center">
 Ethos >>; THEY/HE
 $${\color{red}19-FREELANCER-HOBBYIST.}$$
-${{\color{Goldenrod}\{\textsf{  "I PLEAD IN VAIN, THESE BLEEDING HANDS MIGHT REACH FOR YOU." \}}}}\$</p>
+${{\color{Goldenrod}\{\textsf{  "I PLEAD IN VAIN, THESE BLEEDING HANDS MIGHT REACH FOR YOU." \}}}}\$ </p>
 
 <br clear="left"/>
 
