@@ -3,7 +3,6 @@
 Ethos >>; THEY/HE</p>
 
 $${\color{red}19-FREELANCER-HOBBYIST.}$$
-$${\color{yellow}"I PLEAD IN VAIN, THESE BLEEDING HANDS MIGHT REACH FOR YOU!"}$$
 
 <br clear="left"/>
 
