@@ -20,9 +20,9 @@ $${\color{Goldenrod}19-FREELANCER-HOBBYIST.}$$
 
 <img src="https://64.media.tumblr.com/807f06a7a110957a323ca70cde23cc2f/61fcf01ec6f55cb7-18/s1280x1920/2bf62db9d799bb41fc5eeb9ea8744e3dcaf3c2a4.pnj"/>
 
-${{\color{Goldenrod}\Huge{\textsf{ "I PLEAD IN VAIN, THESE BLEEDING HANDS MIGHT REACH FOR YOU." \}}}}\$
+${{\color{Darkorange}\Huge{\textsf{ "I PLEAD IN VAIN, THESE BLEEDING HANDS MIGHT REACH FOR YOU." \}}}}\$
 
-<img src="https://file.garden/ZtQT07PCZ1cAh83z/eadsad.jpg"/>
+<img src="https://64.media.tumblr.com/921c6574d0ca678ce2e5ad95676fb9c5/0fcec4eea16fc0bc-43/s540x810/69f98557e11508ab07a874fe3daf9be09b1fef55.gifv"/>
 
 <img src="https://64.media.tumblr.com/dce9006085108da9b3077073031b4253/61fcf01ec6f55cb7-6c/s1280x1920/37f032a3d4804a8fee5a369e4c44d9e899d96357.pnj"/>
 
