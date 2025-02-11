@@ -32,6 +32,7 @@ ${{\color{Darkorange}\Huge{\textsf{ "I PLEAD IN VAIN, THESE BLEEDING HANDS MIGHT
 
 <div align="center">
 <p>i'm always on ⛔. doesn't mean anything to me frankly. discord is limited to people i vibe with.</p>
+<p>w2i.</p>
 <br>
 <div align="left">
 
