@@ -18,6 +18,10 @@ $${\color{Goldenrod}19-FREELANCER-HOBBYIST.}$$
 
 <br>
 
+[★ KOFI](https://ko-fi.com/ethiily/commissions)
+
+<br>
+
 <img src="https://64.media.tumblr.com/807f06a7a110957a323ca70cde23cc2f/61fcf01ec6f55cb7-18/s1280x1920/2bf62db9d799bb41fc5eeb9ea8744e3dcaf3c2a4.pnj"/>
 
 ${{\color{Darkorange}\Huge{\textsf{ "I PLEAD IN VAIN, THESE BLEEDING HANDS MIGHT REACH FOR YOU." \}}}}\$
