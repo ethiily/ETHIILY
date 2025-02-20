@@ -10,7 +10,7 @@ $${\color{Goldenrod}19-FREELANCER-HOBBYIST.}$$
 <div align="center">
 <br>
 
- ★ STRAWPAGE is being remade.
+ [★ STRAWPAGE](https://ethiily.straw.page)
 
 <br>
 
