@@ -10,11 +10,15 @@ $${\color{Goldenrod}19-FREELANCER-HOBBYIST.}$$
 <div align="center">
 <br>
 
- [★ STRAWPAGE](https://ethiily.straw.page)
+ ★ STRAWPAGE is being remade.
 
 <br>
 
  [☆ TWITTER](https://x.com/ethiily)
+
+<br>
+
+ [☆ TUMBLR](https://www.tumblr.com/ethiily)
 
 <br>
 
