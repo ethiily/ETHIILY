@@ -3,7 +3,7 @@
 <img src="https://64.media.tumblr.com/3290634b4e8359113adc687922b9c7d0/2091aa28b8da1917-cd/s540x810/09b435032b1bd37dd30138de2fbcec8ba796084e.gifv" align="left"/>
 <br>
 <div align="center">
- <p>ETHOS >>; THEY/HE</p>
+ <p>ETHOS >>; THEY/HE - broken gif link is gonna be the death of me hehahdahh</p>
 
 $${\color{Goldenrod}19-FREELANCER-HOBBYIST.}$$
 
