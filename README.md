@@ -13,19 +13,15 @@
 <br>
 
  [★ STRAWPAGE](https://ethiily.straw.page)
-
 <br>
 
  [☆ TWITTER](https://x.com/ethiily)
-
 <br>
 
- [☆ TUMBLR](https://www.tumblr.com/ethiily)
-
+[☆ TUMBLR](https://www.tumblr.com/ethiily)
 <br>
 
 [★ KOFI](https://ko-fi.com/ethiily/commissions)
-
 <br>
 
 
