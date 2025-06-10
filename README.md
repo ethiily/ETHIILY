@@ -1,6 +1,8 @@
-<img src="https://64.media.tumblr.com/6fb735097645554bb69d921faaf81711/2d5605a74f245e52-c6/s2048x3072/1d563527fbbad59aa0c2a7e87b8f1fa9d421fbb4.pnj"/>
+<img src="https://64.media.tumblr.com/eace360b64ffa6e60edf7d5fafa0cdeb/71159867369eaad2-97/s1280x1920/aae97747590c36298b1b8afc8b612ab37b928a15.gifv"/>
 
-<img src="https://media.tenor.com/Ir8CaQ9SojEAAAAM/dragon-age.gif" align="left"/>
+<img src="https://media.tenor.com/vAlLYnNjhHEAAAAj/hatred-block-tales.gif" 
+ width="300"
+ align="left"/>
 <br>
 <div align="center">
  <p>ETHOS >>; THEY/HE</p>
@@ -25,7 +27,8 @@
 <br>
 
 
-<img src="https://64.media.tumblr.com/807f06a7a110957a323ca70cde23cc2f/61fcf01ec6f55cb7-18/s1280x1920/2bf62db9d799bb41fc5eeb9ea8744e3dcaf3c2a4.pnj"/>
+<img src="https://64.media.tumblr.com/8549050624a88405c2c0cdf1f0302cbe/556fbaf0d304c460-f7/s250x400/773454d3627570a6fffddb09f49949d45edc8cc6.gifv"
+ width="1000"/>
 
 "I PLEAD IN VAIN, THESE BLEEDING HANDS MIGHT REACH FOR YOU."
 
