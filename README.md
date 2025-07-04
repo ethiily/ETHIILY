@@ -26,6 +26,9 @@
 [★ KOFI](https://ko-fi.com/ethiily/commissions)
 <br>
 
+[★ PRONOUNS.PAGE](https://en.pronouns.page/@ethiily)
+<br>
+
 
 <img src="https://64.media.tumblr.com/8549050624a88405c2c0cdf1f0302cbe/556fbaf0d304c460-f7/s250x400/773454d3627570a6fffddb09f49949d45edc8cc6.gifv"
  width="1000"/>
