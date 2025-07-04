@@ -11,7 +11,7 @@
 
 19-FREELANCER-HOBBYIST
 
-<div align="center">
+<div align="right">
 <br>
 
  [★ STRAWPAGE](https://ethiily.straw.page)
